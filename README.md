@@ -1,0 +1,3 @@
+- sup, Im Eqoul, I havent been coding for long.
+- still learning, I'm mostly interesting in cyber security. DDOS panels and backending are some things I'm still learning on making.
+-you can contact me at ˢᴱᴵ␄ ܏#5350 on discord. (copy discord username as shown. "ˢᴱᴵ␄ ܏#5350")
